@@ -1,6 +1,6 @@
 # 避风港官网地址
 
-最新地址：[bfgbfg.com](https://www.bfgok.com/auth/register?code=UDbSv)
+最新地址：[bfgbfg.com]()
 
 ## 避风港介绍
 
